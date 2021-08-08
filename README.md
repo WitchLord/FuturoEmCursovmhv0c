@@ -1,1 +1,0 @@
-# FuturoEmCursovmhv0c
